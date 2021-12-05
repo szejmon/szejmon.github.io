@@ -1,1 +1,1 @@
-I test my websites here lmao
+not much just redirecting to my website
